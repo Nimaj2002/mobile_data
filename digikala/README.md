@@ -1,0 +1,1 @@
+data scraped from digikala by Nima Jelodari
